@@ -1,6 +1,2 @@
-- 👋 Hi, I’m @jemes-guy
-- 👀 I’m interested in Nintendo games, coding and PC's
-- 🌱 I’m currently learning how to make a proper website
-- 💞️ I’m looking to collaborate on something related to a Nintendo PC port
-- 😄 Pronouns: He/Him
-- ⚡ Fun fact: I own a Wii U
+he/they
+not open to any applications at the moment
